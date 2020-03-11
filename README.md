@@ -7,9 +7,8 @@
 
 ## Introduction
 
-Tommy here, I am currently a Junior at the University of Iowa.
-I plan on graduating with a major in business analytics.
-I am from Lake Villa, Illinois and I am currently living in Iowa City, Iowa. I graduated from Lakes Community High School where I graduated on the high honor roll.
+Tommy here, I am currently a Junior at the University of Iowa's Tippie College of Business.
+I am from Lake Villa, Illinois and I am currently living in Iowa City, Iowa. I graduated from Lakes Community High School on the high honor roll.
 
 ## Additional Information
 
